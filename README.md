@@ -2,9 +2,9 @@
 
 |  梯子推荐榜   | 推荐指数 | 官网地址  | 备用网址1 | 备用网址2 |
 |  ----  | ----  | ---- | ---- | ---- |
-| Nord梯子 | ⭐⭐⭐⭐⭐ | [Nord官网地址](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=gitngavvppnn&aff_click_id=tizi) | [Nord备用地址1](http://get.affiliatescn.net/aff_c?offer_id=153&aff_id=38201&source=github&aff_sub=gitngavvppnn&aff_sub2=tizi) | - |
-| Express梯子 | ⭐⭐⭐⭐ | [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=gitngavvppnn&data1=tizi) | [Express备用地址1](https://www.xvuslink.com/?a_fid=tizi_vpn&chan=gitngavvppnn&data1=tizi) | - |
-| Ivacy梯子 | ⭐⭐⭐⭐ | [Ivacy中文地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=gitngavvppnn&data2=tizi) | [Ivacy官网地址1](https://billing.ivacy.com/page/91814/6f38cc97/CHN/gitngavvppnn/tizi) | [Ivacy官网地址2](https://www.ivacy.com/best-vpn-deal-of-2022/?aff=91814&source=Aff&data1=gitngavvppnn&data2=tizi) |
+| Nord梯子 | ⭐⭐⭐⭐⭐ | [Nord官网地址](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=gitngavvppnn&aff_click_id=NGAvvppnn) | [Nord备用地址1](http://get.affiliatescn.net/aff_c?offer_id=153&aff_id=38201&source=github&aff_sub=gitngavvppnn&aff_sub2=NGAvvppnn) | - |
+| Express梯子 | ⭐⭐⭐⭐ | [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=gitngavvppnn&data1=NGAvvppnn) | [Express备用地址1](https://www.xvuslink.com/?a_fid=tizi_vpn&chan=gitngavvppnn&data1=NGAvvppnn) | - |
+| Ivacy梯子 | ⭐⭐⭐⭐ | [Ivacy中文地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=gitngavvppnn&data2=NGAvvppnn) | [Ivacy官网地址1](https://billing.ivacy.com/page/91814/6f38cc97/CHN/gitngavvppnn/NGAvvppnn) | [Ivacy官网地址2](https://www.ivacy.com/best-vpn-deal-of-2022/?aff=91814&source=Aff&data1=gitngavvppnn&data2=NGAvvppnn) |
 | 熊猫梯子 | ⭐⭐⭐ | [Panda官方网址](https://www.pankvyh.xyz/r/22216799) | [Panda备用地址1](https://www.pantoto.xyz/r/22216799) | [Panda备用地址2](https://pandavpnpro.com/r/22216799) |
 
 
@@ -209,9 +209,9 @@
  
 |  梯子推荐榜   | 推荐指数 | 官网地址  | 备用网址1 | 备用网址2 |
 |  ----  | ----  | ---- | ---- | ---- |
-| Nord梯子 | ⭐⭐⭐⭐⭐ | [Nord官网地址](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=gitngavvppnn&aff_click_id=tizi) | [Nord备用地址1](http://get.affiliatescn.net/aff_c?offer_id=153&aff_id=38201&source=github&aff_sub=gitngavvppnn&aff_sub2=tizi) | - |
-| Express梯子 | ⭐⭐⭐⭐ | [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=gitngavvppnn&data1=tizi) | [Express备用地址1](https://www.xvuslink.com/?a_fid=tizi_vpn&chan=gitngavvppnn&data1=tizi) | - |
-| Ivacy梯子 | ⭐⭐⭐⭐ | [Ivacy中文地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=gitngavvppnn&data2=tizi) | [Ivacy官网地址1](https://billing.ivacy.com/page/91814/6f38cc97/CHN/gitngavvppnn/tizi) | [Ivacy官网地址2](https://www.ivacy.com/best-vpn-deal-of-2022/?aff=91814&source=Aff&data1=gitngavvppnn&data2=tizi) |
+| Nord梯子 | ⭐⭐⭐⭐⭐ | [Nord官网地址](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=gitngavvppnn&aff_click_id=NGAvvppnn) | [Nord备用地址1](http://get.affiliatescn.net/aff_c?offer_id=153&aff_id=38201&source=github&aff_sub=gitngavvppnn&aff_sub2=NGAvvppnn) | - |
+| Express梯子 | ⭐⭐⭐⭐ | [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=gitngavvppnn&data1=NGAvvppnn) | [Express备用地址1](https://www.xvuslink.com/?a_fid=tizi_vpn&chan=gitngavvppnn&data1=NGAvvppnn) | - |
+| Ivacy梯子 | ⭐⭐⭐⭐ | [Ivacy中文地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=gitngavvppnn&data2=NGAvvppnn) | [Ivacy官网地址1](https://billing.ivacy.com/page/91814/6f38cc97/CHN/gitngavvppnn/NGAvvppnn) | [Ivacy官网地址2](https://www.ivacy.com/best-vpn-deal-of-2022/?aff=91814&source=Aff&data1=gitngavvppnn&data2=NGAvvppnn) |
 | 熊猫梯子 | ⭐⭐⭐ | [Panda官方网址](https://www.pankvyh.xyz/r/22216799) | [Panda备用地址1](https://www.pantoto.xyz/r/22216799) | [Panda备用地址2](https://pandavpnpro.com/r/22216799) | 
 
  
@@ -229,7 +229,7 @@
 <div style="color:#32373c;background-color:#ff3860" class="wp-block-genesis-blocks-gb-notice gb-font-size-18 gb-block-notice" data-id="5e5432"><div class="gb-notice-text" style="border-color:#ff3860"><p>诋毁中国的那些所谓“自由中立”的西方媒体和唯恐中国不乱的蹩脚民运人士，不是我翻墙的目的。 没错，<strong>这是一个介绍科学上网方法的网站</strong>，<strong>但这不是一个反中网站</strong>，别误会，请海外恨中国的人离远一点。</p></div></div>
 <p>它们的报道的确很“自由”，它们可以“自由”地歪曲事实，“自由”地诋毁一个国家，“自由”地制造混乱、仇恨和死亡。我很清楚，现在的西方世界在我看来，只有立场和偏见而早已没有正义可言。很不幸我还生活在国外，打开电视机，西方人对中国的敌视就像他们的无知与傲慢一样普遍。我并不惊讶，我还看到西方社会对本国人民的无视，而这让我十分失望。我以前也是个愤青，那时候我翻墙是为了找到与我的愤怒一致的人，但在国外待了很长一段时间后，我不再这样。我对那些东西没兴趣了，免疫了，我翻墙就是为了学习和工作。</p>
 
- [感谢老铁的阅读和关注👍👍👍](https://github.com/fqmama/tizi)
+ [感谢老铁的阅读和关注👍👍👍](https://github.com/fqmama/NGAvvppnn)
  
 <p></p>
 <h2><span id="ke_xue_shang_wang_de_yi_yi">科学上网的意义</span></h2>
@@ -259,9 +259,9 @@
 
  |  梯子推荐榜   | 推荐指数 | 官网地址  | 备用网址1 | 备用网址2 |
 |  ----  | ----  | ---- | ---- | ---- |
-| Nord梯子 | ⭐⭐⭐⭐⭐ | [Nord官网地址](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=gitngavvppnn&aff_click_id=tizi) | [Nord备用地址1](http://get.affiliatescn.net/aff_c?offer_id=153&aff_id=38201&source=github&aff_sub=gitngavvppnn&aff_sub2=tizi) | - |
-| Express梯子 | ⭐⭐⭐⭐ | [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=gitngavvppnn&data1=tizi) | [Express备用地址1](https://www.xvuslink.com/?a_fid=tizi_vpn&chan=gitngavvppnn&data1=tizi) | - |
-| Ivacy梯子 | ⭐⭐⭐⭐ | [Ivacy中文地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=gitngavvppnn&data2=tizi) | [Ivacy官网地址1](https://billing.ivacy.com/page/91814/6f38cc97/CHN/gitngavvppnn/tizi) | [Ivacy官网地址2](https://www.ivacy.com/best-vpn-deal-of-2022/?aff=91814&source=Aff&data1=gitngavvppnn&data2=tizi) |
+| Nord梯子 | ⭐⭐⭐⭐⭐ | [Nord官网地址](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=gitngavvppnn&aff_click_id=NGAvvppnn) | [Nord备用地址1](http://get.affiliatescn.net/aff_c?offer_id=153&aff_id=38201&source=github&aff_sub=gitngavvppnn&aff_sub2=NGAvvppnn) | - |
+| Express梯子 | ⭐⭐⭐⭐ | [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=gitngavvppnn&data1=NGAvvppnn) | [Express备用地址1](https://www.xvuslink.com/?a_fid=tizi_vpn&chan=gitngavvppnn&data1=NGAvvppnn) | - |
+| Ivacy梯子 | ⭐⭐⭐⭐ | [Ivacy中文地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=gitngavvppnn&data2=NGAvvppnn) | [Ivacy官网地址1](https://billing.ivacy.com/page/91814/6f38cc97/CHN/gitngavvppnn/NGAvvppnn) | [Ivacy官网地址2](https://www.ivacy.com/best-vpn-deal-of-2022/?aff=91814&source=Aff&data1=gitngavvppnn&data2=NGAvvppnn) |
 | 熊猫梯子 | ⭐⭐⭐ | [Panda官方网址](https://www.pankvyh.xyz/r/22216799) | [Panda备用地址1](https://www.pantoto.xyz/r/22216799) | [Panda备用地址2](https://pandavpnpro.com/r/22216799) |
 
  
@@ -282,7 +282,7 @@
 <p>在初期开始频繁掉线，更换节点也没用，即使连上，半小时内必然掉线（多次），且需要花较长时间重连。到了中期变成没有可连节点，任何节点都连不上，服务变得完全不可用，厂商通常会针对中国市场发布应急版本，但如果你的设备只有当前一个翻墙软件，而没有留备胎，那基本上你不会有希望让客户端能够更新。如果你准备了备胎软件，常常还有希望更新客户端，但即使那样，翻墙上网的速度也不会快，这你解决不了，因为整个中国互联网到境外节点的流量都经过严厉审查，速度因此会大幅下降。</p>
 <p>我的期望是，不要指望某一个工具能让你高枕无忧，你很可能需要准备多技术类型，多个科学上网工具。</p>
  
- [感谢老铁的阅读和关注👍👍👍](https://github.com/fqmama/tizi) 
+ [感谢老铁的阅读和关注👍👍👍](https://github.com/fqmama/NGAvvppnn) 
  
 <h2><span id="zhu_liu_ke_xue_shang_wang_gong_ju_bi_jiao">主流科学上网工具比较</span></h2>
 <h3><span id="VPN_fan_qiang_jia_mi_duo_xie_yi_duo_tiao">VPN翻墙（加密多协议多跳）</span></h3>
@@ -337,9 +337,9 @@
  
 |  梯子推荐榜   | 推荐指数 | 官网地址  | 备用网址1 | 备用网址2 |
 |  ----  | ----  | ---- | ---- | ---- |
-| Nord梯子 | ⭐⭐⭐⭐⭐ | [Nord官网地址](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=gitngavvppnn&aff_click_id=tizi) | [Nord备用地址1](http://get.affiliatescn.net/aff_c?offer_id=153&aff_id=38201&source=github&aff_sub=gitngavvppnn&aff_sub2=tizi) | - |
-| Express梯子 | ⭐⭐⭐⭐ | [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=gitngavvppnn&data1=tizi) | [Express备用地址1](https://www.xvuslink.com/?a_fid=tizi_vpn&chan=gitngavvppnn&data1=tizi) | - |
-| Ivacy梯子 | ⭐⭐⭐⭐ | [Ivacy中文地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=gitngavvppnn&data2=tizi) | [Ivacy官网地址1](https://billing.ivacy.com/page/91814/6f38cc97/CHN/gitngavvppnn/tizi) | [Ivacy官网地址2](https://www.ivacy.com/best-vpn-deal-of-2022/?aff=91814&source=Aff&data1=gitngavvppnn&data2=tizi) |
+| Nord梯子 | ⭐⭐⭐⭐⭐ | [Nord官网地址](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=gitngavvppnn&aff_click_id=NGAvvppnn) | [Nord备用地址1](http://get.affiliatescn.net/aff_c?offer_id=153&aff_id=38201&source=github&aff_sub=gitngavvppnn&aff_sub2=NGAvvppnn) | - |
+| Express梯子 | ⭐⭐⭐⭐ | [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=gitngavvppnn&data1=NGAvvppnn) | [Express备用地址1](https://www.xvuslink.com/?a_fid=tizi_vpn&chan=gitngavvppnn&data1=NGAvvppnn) | - |
+| Ivacy梯子 | ⭐⭐⭐⭐ | [Ivacy中文地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=gitngavvppnn&data2=NGAvvppnn) | [Ivacy官网地址1](https://billing.ivacy.com/page/91814/6f38cc97/CHN/gitngavvppnn/NGAvvppnn) | [Ivacy官网地址2](https://www.ivacy.com/best-vpn-deal-of-2022/?aff=91814&source=Aff&data1=gitngavvppnn&data2=NGAvvppnn) |
 | 熊猫梯子 | ⭐⭐⭐ | [Panda官方网址](https://www.pankvyh.xyz/r/22216799) | [Panda备用地址1](https://www.pantoto.xyz/r/22216799) | [Panda备用地址2](https://pandavpnpro.com/r/22216799) |
 
  
@@ -367,7 +367,7 @@
 <h3><span id="xiu_gaiHOST_fang_wen_mou_xie_wang_zhan">修改HOST访问某些网站</span></h3>
 <div class="i2-pros-cons-icons i2-pros-cons-main-wrapper theme-i2pc-theme-00 no-title no-button no-space-between-column no-outer-border no-round-corner no-heading-icon"><div class="i2-pros-cons-wrapper"><div class="i2-pros"><strong class="i2-pros-title">优点</strong><div class="section"><ul class="has-icon"><li><i class="icon icon-thumbs-o-up"></i>在某些场景下特别有用，比如快速解封访问某个特定网站，这些网站只是被域名污染，修改hosts强制域名解析到正确的IP是快且有效的方法</li></ul></div></div><div class="i2-cons"><strong class="i2-cons-title">缺点</strong><div class="section"><ul class="has-icon"><li><i class="icon icon-thumbs-o-down"></i>无法应对更复杂的屏蔽场景，作用极为受限</li></ul></div></div></div></div>
 
- [感谢老铁的阅读和关注👍👍👍](https://github.com/fqmama/tizi)
+ [感谢老铁的阅读和关注👍👍👍](https://github.com/fqmama/NGAvvppnn)
  
 <h2 id="locations"><span id="fan_qiang_jie_dian_dian_ping_xiang_gang_tai_wan_ri_ben_xin_jia_po_han_guo_mei_guo_deng">翻墙节点点评：香港，台湾，日本，新加坡，韩国，美国等</span></h2>
 <p>好用的翻墙节点大都集中在<strong>香港、台湾、日本、新加坡、韩国和美国</strong>（西部）这几个地方，不排除有些较冷门的城市偶尔也能连，但一般速度不理想。</p>
@@ -431,9 +431,9 @@
 
 |  梯子推荐榜   | 推荐指数 | 官网地址  | 备用网址1 | 备用网址2 |
 |  ----  | ----  | ---- | ---- | ---- |
-| Nord梯子 | ⭐⭐⭐⭐⭐ | [Nord官网地址](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=gitngavvppnn&aff_click_id=tizi) | [Nord备用地址1](http://get.affiliatescn.net/aff_c?offer_id=153&aff_id=38201&source=github&aff_sub=gitngavvppnn&aff_sub2=tizi) | - |
-| Express梯子 | ⭐⭐⭐⭐ | [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=gitngavvppnn&data1=tizi) | [Express备用地址1](https://www.xvuslink.com/?a_fid=tizi_vpn&chan=gitngavvppnn&data1=tizi) | - |
-| Ivacy梯子 | ⭐⭐⭐⭐ | [Ivacy中文地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=gitngavvppnn&data2=tizi) | [Ivacy官网地址1](https://billing.ivacy.com/page/91814/6f38cc97/CHN/gitngavvppnn/tizi) | [Ivacy官网地址2](https://www.ivacy.com/best-vpn-deal-of-2022/?aff=91814&source=Aff&data1=gitngavvppnn&data2=tizi) |
+| Nord梯子 | ⭐⭐⭐⭐⭐ | [Nord官网地址](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=gitngavvppnn&aff_click_id=NGAvvppnn) | [Nord备用地址1](http://get.affiliatescn.net/aff_c?offer_id=153&aff_id=38201&source=github&aff_sub=gitngavvppnn&aff_sub2=NGAvvppnn) | - |
+| Express梯子 | ⭐⭐⭐⭐ | [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=gitngavvppnn&data1=NGAvvppnn) | [Express备用地址1](https://www.xvuslink.com/?a_fid=tizi_vpn&chan=gitngavvppnn&data1=NGAvvppnn) | - |
+| Ivacy梯子 | ⭐⭐⭐⭐ | [Ivacy中文地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=gitngavvppnn&data2=NGAvvppnn) | [Ivacy官网地址1](https://billing.ivacy.com/page/91814/6f38cc97/CHN/gitngavvppnn/NGAvvppnn) | [Ivacy官网地址2](https://www.ivacy.com/best-vpn-deal-of-2022/?aff=91814&source=Aff&data1=gitngavvppnn&data2=NGAvvppnn) |
 | 熊猫梯子 | ⭐⭐⭐ | [Panda官方网址](https://www.pankvyh.xyz/r/22216799) | [Panda备用地址1](https://www.pantoto.xyz/r/22216799) | [Panda备用地址2](https://pandavpnpro.com/r/22216799) |
 
  
